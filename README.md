@@ -2,9 +2,9 @@
 
   导航永永久域名HttpS://fkmi1.net
   
- ⭐️ 👉地址一：HttpS : //fkmi2.com
+ ⭐️ 👉地址一：HttpS://fkmi2.com
  
- ⭐️ 👉备用导航：HttpS : //fkmi4.com.com
+ ⭐️ 👉备用导航：HttpS://fkmi4.com.com
  
  ！️！️长按复制到浏览器里面访问以上网址！️！️
  
